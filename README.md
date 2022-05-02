@@ -1,1 +1,0 @@
-# oktaygulec.github.io
